@@ -4,4 +4,4 @@ Märjamaa Muusika- ja Kunstikool (MMKK) on Märjamaa valla huvikool, mis pakub s
 
 Märjamaa Muusika- ja Kunstikooli eesmärgiks on olla avatud (halvale suletud), sõbralikuks (kuid nõudlikuks) ja targaks (ning ettenägelikuks) kultuurikeskuseks, kus on mitmekesised võimalused loominguks.
 
-Meie visiooni juhtlause on Avatus ja andmisrõõm
+Meie visiooni juhtlause on avatus ja andmisrõõm
